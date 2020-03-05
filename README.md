@@ -6,3 +6,5 @@ Im closing this cheat permanently also closing developer discord with all its in
 HAVE FUN!
 
 https://media.discordapp.net/attachments/653071630872084500/681641758643585074/unknown.png?width=1442&height=435
+
+Well done mr bartosz jasinski, you played yourself.
