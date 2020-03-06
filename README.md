@@ -1,6 +1,4 @@
-#Thanks to http://oyvey.de/
-
-##Leak by: http://g0df4th3r.com/
+[Rekked by g0df4th3r](http://g0df4th3r.com/)
 
 
 
@@ -11,3 +9,7 @@ Im closing this cheat permanently also closing developer discord with all its in
 HAVE FUN!
 
 https://media.discordapp.net/attachments/653071630872084500/681641758643585074/unknown.png
+
+
+
+[Thanks to Sting for giving us the source](http://oyvey.de/)
