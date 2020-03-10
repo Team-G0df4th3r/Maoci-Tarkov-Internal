@@ -10,6 +10,6 @@ HAVE FUN!
 
 https://media.discordapp.net/attachments/653071630872084500/681641758643585074/unknown.png
 
-
+[Also, Maoci, take some English lessons if you can.](https://cdn.discordapp.com/attachments/498085432618254337/687065426747719728/doyouevenenglishbro.PNG)
 
 [Thanks to Sting for giving us the source](http://oyvey.de/)
